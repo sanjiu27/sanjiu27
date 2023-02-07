@@ -14,5 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-what can i say? Glad to see you! I come from China,now my career plan is to be a network administrator or operation and maintenance assistant.My English is not good, only 
-use simple phrases.
+What can i say? Glad to see you!
+I come from China,now my career plan is to be a network administrator or operation and maintenance assistant.
+My English is not good, only use simple phrases.
